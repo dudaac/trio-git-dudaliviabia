@@ -1,1 +1,1 @@
-# trio-git-dudaliviabia parceiras
+# trio-git-dudaliviabia amigas parceiras lindas
